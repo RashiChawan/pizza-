@@ -1,0 +1,5 @@
+-preheat the oven
+-take your pizza base and spread the sause evenly aroud the whole base
+-sprinkle the cheese around the pizza 
+-and all the vegetables 
+-back the pizza till golden brown 
